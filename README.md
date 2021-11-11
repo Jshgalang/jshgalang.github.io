@@ -1,1 +1,0 @@
-# jshgalang.github.io
